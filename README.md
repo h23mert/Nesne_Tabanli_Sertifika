@@ -1,0 +1,1 @@
+# Nesne_Tabanli_Sertifika
